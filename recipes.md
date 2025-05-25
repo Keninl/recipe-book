@@ -117,14 +117,14 @@ Instructions:
 ## Desserts
 ### Canelé
 
-Milk — whole milk is ideal as the canelés benefit from the higher fat content in whole milk to create a wonderfully custardy interior.
+- Milk — whole milk is ideal as the canelés benefit from the higher fat content in whole milk to create a wonderfully custardy interior.
 
-Butter — I highly recommend using European-style butter as it has a higher fat content, and again, it helps create a custardy interior.
+- Butter — I highly recommend using European-style butter as it has a higher fat content, and again, it helps create a custardy interior.
 
-Eggs — the eggs help with the texture of the canelés, and the extra yolks make them even richer and more flavorful.
+- Eggs — the eggs help with the texture of the canelés, and the extra yolks make them even richer and more flavorful.
 
-Flour — all-purpose flour is best as it provides just enough structure without making the interior cakey or too chewy.
+- Flour — all-purpose flour is best as it provides just enough structure without making the interior cakey or too chewy.
 
-Rum — the rum will bake off in the oven, leaving you with just the rum flavoring.
+- Rum — the rum will bake off in the oven, leaving you with just the rum flavoring.
 
-Beeswax — you will need beeswax to get the ​​classic, beautiful, and shiny exterior of the canelés. Be sure to use food-grade unscented beeswax for the coating.
+- Beeswax — you will need beeswax to get the ​​classic, beautiful, and shiny exterior of the canelés. Be sure to use food-grade unscented beeswax for the coating.
