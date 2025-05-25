@@ -113,3 +113,18 @@ Instructions:
 7. Drop tablespoon-sized balls of dough onto ungreased baking sheets.
 8. Bake for 8 to 10 minutes or until golden brown.
 9. Cool on wire racks.
+
+## Desserts
+### Canelé
+
+Milk — whole milk is ideal as the canelés benefit from the higher fat content in whole milk to create a wonderfully custardy interior.
+
+Butter — I highly recommend using European-style butter as it has a higher fat content, and again, it helps create a custardy interior.
+
+Eggs — the eggs help with the texture of the canelés, and the extra yolks make them even richer and more flavorful.
+
+Flour — all-purpose flour is best as it provides just enough structure without making the interior cakey or too chewy.
+
+Rum — the rum will bake off in the oven, leaving you with just the rum flavoring.
+
+Beeswax — you will need beeswax to get the ​​classic, beautiful, and shiny exterior of the canelés. Be sure to use food-grade unscented beeswax for the coating.
